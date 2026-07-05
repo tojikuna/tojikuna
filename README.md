@@ -8,7 +8,7 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 <table>
 <tr>
 <td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-50f0d45cabe34da1.webp" alt="Pen" width="55" height="110">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-2155d37a514ecf5d.webp" alt="Pen" width="50" height="110">
 </td>
 
 <td style="vertical-align: top;">
