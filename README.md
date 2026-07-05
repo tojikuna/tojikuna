@@ -13,7 +13,7 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 
 <td style="vertical-align: top;">
   <div class="message">
-    yo
+    ᚐ ۫ 𓈒⠀<img src="https://i.postimg.cc/nhD3bZqy/Untitled88-20260705190406.png" width="63" height="18" alt="Description"> 민⠀ ૮⳿ . ٜ . 𑁬ྀི｡
   </div>
 </td>
 </tr>
