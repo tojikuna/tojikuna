@@ -39,8 +39,8 @@ I'm 𝐚𝐧𝐠𝐫𝐲 . ⠀ 𝐜𝐚𝐥𝐥 ,  I'm 𝐝𝐞𝐬𝐩𝐞�
     <img src="https://i.postimg.cc/1tCHvkjy/Untitled95-20260709183425.png" width="120" height="25" alt="Description">⠀˖ ۫ ்۪۪<br>
     OR⠀𓈒˖ ۫⠀EDD ⠀ֹႍ ⠀<img src="https://i.postimg.cc/CLfN46Hg/Untitled95-20260709183546.png" width="30" height="25" alt="Description"> <br>
     ᕠ ⑅ᥤ ⠀ <img src="https://i.postimg.cc/xT6yPDhZ/Untitled95-20260709183602.png" width="63" height="25" alt="Description"> ⠀ 𓈒༷♪˚<br>
-    <img src="https://i.postimg.cc/y8WhQpzj/Untitled95-20260709183633.png" width="60" height="25" alt="Description">  ⠀ི ⠀  (𓂂꜆ᐢ ᵕ ᐢ)꜆<br>
-   ✿ ˖⠀<img src="https://i.postimg.cc/jS9HG6xr/Untitled95-20260709183643.png" width="120" height="25" alt="Description">
+    <a href="https://lovefool.atabook.org/"><img src="https://i.postimg.cc/y8WhQpzj/Untitled95-20260709183633.png" width="60" height="25" alt="Description"></a>  ⠀ི ⠀  (𓂂꜆ᐢ ᵕ ᐢ)꜆<br>
+   ✿ ˖⠀<a href="https://rentry.org/firestyle"><img src="https://i.postimg.cc/jS9HG6xr/Untitled95-20260709183643.png" width="120" height="25" alt="Description"></a>
   </div>
 </td>
 </tr>
