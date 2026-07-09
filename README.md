@@ -32,7 +32,7 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 
 <td style="vertical-align: top;">
   <div class="message">
-    <img src="https://i.postimg.cc/1tCHvkjy/Untitled95-20260709183425.png" width="120" height="25" alt="Description"> <br>
+    ˖ ۫ ்۪۪ ⠀ <img src="https://i.postimg.cc/1tCHvkjy/Untitled95-20260709183425.png" width="120" height="25" alt="Description"> <br>
     <img src="https://i.postimg.cc/CLfN46Hg/Untitled95-20260709183546.png" width="30" height="25" alt="Description"> <br>
     <img src="https://i.postimg.cc/xT6yPDhZ/Untitled95-20260709183602.png" width="63" height="25" alt="Description"> <br>
     <img src="https://i.postimg.cc/y8WhQpzj/Untitled95-20260709183633.png" width="55" height="25" alt="Description"> <br>
