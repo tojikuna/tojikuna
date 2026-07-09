@@ -21,3 +21,19 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 </td>
 </tr>
 </table>
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-34df9bd35c5f3e14.webp" width="270" height="180" alt="Description">
+
+<table>
+<tr>
+<td style="vertical-align: top;">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled94_20260709150341.png" alt="Pen" width="60" height="150">
+</td>
+
+<td style="vertical-align: top;">
+  <div class="message">
+    hi aub
+  </div>
+</td>
+</tr>
+</table>
