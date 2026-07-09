@@ -33,7 +33,7 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 <td style="vertical-align: top;">
   <div class="message">
     <img src="https://i.postimg.cc/1tCHvkjy/Untitled95-20260709183425.png" width="120" height="25" alt="Description">⠀˖ ۫ ்۪۪<br>
-    OR⠀𓈒˖ ۫⠀ EDD ⠀ֹႍ  ⠀ <img src="https://i.postimg.cc/CLfN46Hg/Untitled95-20260709183546.png" width="30" height="25" alt="Description"> <br>
+    OR⠀𓈒˖ ۫⠀EDD ⠀ֹႍ ⠀<img src="https://i.postimg.cc/CLfN46Hg/Untitled95-20260709183546.png" width="30" height="25" alt="Description"> <br>
     ᕠ ⑅ᥤ ⠀ <img src="https://i.postimg.cc/xT6yPDhZ/Untitled95-20260709183602.png" width="63" height="25" alt="Description"> ⠀ 𓈒༷♪˚<br>
     <img src="https://i.postimg.cc/y8WhQpzj/Untitled95-20260709183633.png" width="60" height="25" alt="Description">  ⠀ི ⠀  (𓂂꜆ᐢ ᵕ ᐢ)꜆<br>
    ✿ ˖⠀<img src="https://i.postimg.cc/jS9HG6xr/Untitled95-20260709183643.png" width="120" height="25" alt="Description">
