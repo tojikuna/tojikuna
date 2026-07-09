@@ -27,7 +27,7 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 <table>
 <tr>
 <td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled94_20260709175950.png" alt="Pen" width="70" height="160">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled94_20260709181007.png" alt="Pen" width="70" height="160">
 </td>
 
 <td style="vertical-align: top;">
