@@ -24,8 +24,8 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-1f891da247d0fbf3.webp" width="270" height="10" alt="Description"> <br>
 
-♡⃕  ๋۪⠀ Waiting for your 𝐜𝐚𝐥𝐥 ,  I'm 𝐬𝐢𝐜𝐤 .⠀ 𝐜𝐚𝐥𝐥 , <br>
-I'm 𝐚𝐧𝐠𝐫𝐲 .⠀𝐜𝐚𝐥𝐥 ,  I'm 𝐝𝐞𝐬𝐩𝐞𝐫𝐚𝐭𝐞 for ur voice
+♡⃕  ๋۪⠀ Waiting for your 𝐜𝐚𝐥𝐥 ,⠀ I'm 𝐬𝐢𝐜𝐤 .⠀ 𝐜𝐚𝐥𝐥 , <br>
+I'm 𝐚𝐧𝐠𝐫𝐲 . ⠀ 𝐜𝐚𝐥𝐥 ,  I'm 𝐝𝐞𝐬𝐩𝐞𝐫𝐚𝐭𝐞 for ur voice
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-769b570b1c1d0c47.webp" width="270" height="180" alt="Description">
 
