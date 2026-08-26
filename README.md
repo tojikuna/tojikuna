@@ -43,7 +43,7 @@ for yk who
         ༷݁ ⠀예쁜아 <br>
         ⠀⠀ <br>
         ♬  ்۪۪⠀<a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="140" height="19" alt="Description"></a> <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a> ⠀ ்۪۪✼
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a>⠀ ்۪۪✼
       </div>
     </td>
     <td style="vertical-align: top;">
