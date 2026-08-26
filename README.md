@@ -38,7 +38,12 @@ for yk who
     </td>
     <td style="vertical-align: top;">
       <div class="message">
-        ok
+        ok <br>
+        ok <br>
+        ok <br>
+        ⠀⠀ <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="130" height="19" alt="Description"></a> <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="130" height="19" alt="Description"></a>
       </div>
     </td>
     <td style="vertical-align: top;">
