@@ -26,7 +26,7 @@ for yk who
 
 <div id="text" align="center">
 
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-762a32b29f30bd45.webp" width="270" height="150" alt="Description">
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-762a32b29f30bd45.webp" width="270" height="140" alt="Description">
 
 <table>
   <tr>
