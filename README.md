@@ -39,11 +39,11 @@ for yk who
     <td style="vertical-align: top;">
       <div class="message">
         †      𝆤    ࿙๋  ࿙࿚       ༷݁ ˖      ࿙࿚๋  ࿚     𝆤     † <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826191744.png" width="100" height="19"></a> <br>
         ༷݁ ⠀예쁜아 <br>
-        ok <br>
         ⠀⠀ <br>
-        <a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="130" height="19" alt="Description"></a> <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="130" height="19" alt="Description"></a>
+        ♬   ்۪۪      ⠀ <a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="140" height="19" alt="Description"></a> <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a> ⠀    ்۪۪   ✼
       </div>
     </td>
     <td style="vertical-align: top;">
