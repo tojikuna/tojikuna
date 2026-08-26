@@ -33,8 +33,8 @@ for yk who
     <td style="vertical-align: top;">
       <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp"
            alt="Left image"
-           width="12"
-           height="180">
+           width="10"
+           height="150">
     </td>
     <td style="vertical-align: top;">
       <div class="message">
@@ -44,8 +44,8 @@ for yk who
     <td style="vertical-align: top;">
       <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-5e0012cf02ce6713.webp"
            alt="Right image"
-           width="12"
-           height="180">
+           width="10"
+           height="150">
     </td>
   </tr>
 </table>
