@@ -24,6 +24,8 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 
 for yk who
 
+ ۪۪۫ 𓈒⑅ ⠀ You're   my   sugar   after   dinner ⠀ ͏ॢ
+
 <div id="text" align="center">
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-762a32b29f30bd45.webp" width="270" height="140" alt="Description">
@@ -39,11 +41,11 @@ for yk who
     <td style="vertical-align: top;">
       <div class="message">
         †      𝆤    ࿙๋  ࿙࿚       ༷݁ ˖      ࿙࿚๋  ࿚     𝆤     † <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826191744.png" width="100" height="19"></a>    ۫ഒ⠀ 16 ⠀𓈒 ۫ <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826191744.png" width="100" height="19"></a>    ۫ഒ⠀ 16⠀𓈒 ۫ <br>
         ༷݁ ⠀ 예 쁜 아 ⠀⠀<a href="https://github.com/5uguru">min</a> ⠀⠀(∽ _  ∽ <br>
         ⠀⠀ <br>
         ♬  ்۪۪⠀<a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="140" height="19" alt="Description"></a> <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a>⠀ ்۪۪✼
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a>⠀ ்۪۪⌖
       </div>
     </td>
     <td style="vertical-align: top;">
