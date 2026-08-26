@@ -39,8 +39,8 @@ for yk who
     <td style="vertical-align: top;">
       <div class="message">
         †      𝆤    ࿙๋  ࿙࿚       ༷݁ ˖      ࿙࿚๋  ࿚     𝆤     † <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826191744.png" width="100" height="19"></a> <br>
-        ༷݁ ⠀ 예 쁜 아 ⠀⠀<a href="https://github.com/5uguru">min</a> ⠀⠀(∽  _  ∽ <br>
+        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826191744.png" width="100" height="19"></a> ⠀ ۫ഒ⠀ 16 ⠀     ֔ᮬ  <br>
+        ༷݁ ⠀ 예 쁜 아 ⠀⠀<a href="https://github.com/5uguru">min</a> ⠀⠀(∽ _  ∽ <br>
         ⠀⠀ <br>
         ♬  ்۪۪⠀<a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="140" height="19" alt="Description"></a> <br>
         <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="140" height="19" alt="Description"></a>⠀ ்۪۪✼
