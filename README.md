@@ -39,10 +39,10 @@ for yk who
     <td style="vertical-align: top;">
       <div class="message">
         †      𝆤    ࿙๋  ࿙࿚       ༷݁ ˖      ࿙࿚๋  ࿚     𝆤     † <br>
-        ok <br>
+        ༷݁ ⠀예쁜아 <br>
         ok <br>
         ⠀⠀ <br>
-        <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="130" height="19" alt="Description"></a> <br>
+        <a href="https://minho.atabook.org/"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182754.png" width="130" height="19" alt="Description"></a> <br>
         <a href="https://rentry.co/tints"><img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled145_20260826182732.png" width="130" height="19" alt="Description"></a>
       </div>
     </td>
@@ -56,7 +56,7 @@ for yk who
 </table>
 
 
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled144_20260826184630.png" width="270" height="110" alt="Description">
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled144_20260826191131.png" width="270" height="110" alt="Description">
 
 
 
