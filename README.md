@@ -31,7 +31,7 @@ for yk who
 <table>
 <tr>
 <td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp" alt="Pen" width="13" height="180">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp" alt="Pen" width="12" height="180">
 </td>
 
 <td style="vertical-align: top;">
