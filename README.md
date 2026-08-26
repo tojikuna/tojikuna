@@ -22,6 +22,27 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 </tr>
 </table>
 
+for yk who
+
+<div id="text" align="center">
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-55f62ceddddbb089.webp" width="270" height="130" alt="Description">
+
+<table>
+<tr>
+<td style="vertical-align: top;">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp" alt="Pen" width="13" height="180">
+</td>
+
+<td style="vertical-align: top;">
+  <div class="message">
+    ok
+  </div>
+</td>
+</tr>
+</table>
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled144_20260826163945.png" width="270" height="100" alt="Description">
 
 
 
