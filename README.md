@@ -38,7 +38,7 @@ for yk who
     </td>
     <td style="vertical-align: top;">
       <div class="message">
-        ok <br>
+        †     𝆤   ࿙๋  ࿙࿚      ༷݁ ˖     ࿙࿚๋  ࿚   𝆤     † <br>
         ok <br>
         ok <br>
         ⠀⠀ <br>
