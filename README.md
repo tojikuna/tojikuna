@@ -29,18 +29,27 @@ for yk who
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-55f62ceddddbb089.webp" width="270" height="130" alt="Description">
 
 <table>
-<tr>
-<td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp" alt="Pen" width="12" height="180">
-</td>
-
-<td style="vertical-align: top;">
-  <div class="message">
-    ok
-  </div>
-</td>
-</tr>
+  <tr>
+    <td style="vertical-align: top;">
+      <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54104f8f16f98b33.webp"
+           alt="Left image"
+           width="12"
+           height="180">
+    </td>
+    <td style="vertical-align: top;">
+      <div class="message">
+        ok
+      </div>
+    </td>
+    <td style="vertical-align: top;">
+      <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-5e0012cf02ce6713.webp"
+           alt="Right image"
+           width="12"
+           height="180">
+    </td>
+  </tr>
 </table>
+
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled144_20260826163945.png" width="270" height="100" alt="Description">
 
