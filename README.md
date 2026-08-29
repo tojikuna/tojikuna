@@ -22,9 +22,9 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 </tr>
 </table>
 
-<img src="https://i.postimg.cc/jjLTpgwx/Untitled147-20260829181949.png" height="100" alt="Description">   <img src="https://i.postimg.cc/FHwCKDCK/ezgif-627eeb524e55b201.gif" width="180" height="100" alt="Description">   <img src="https://i.postimg.cc/mDK7Y5MP/Untitled147-20260830011502.png" height="100" alt="Description">
-<img src="https://i.postimg.cc/Kjvh502T/Untitled147-20260829194714.png" width="180" height="85" alt="Description">
-  <img src="https://i.postimg.cc/6qjJbCW0/ezgif-6fc929e1cc0332811.webp" height="85" alt="Description">
+<img src="https://i.postimg.cc/jjLTpgwx/Untitled147-20260829181949.png" height="100" alt="Description">   <img src="https://i.postimg.cc/FHwCKDCK/ezgif-627eeb524e55b201.gif" width="180" height="100" alt="Description">   <img src="https://i.postimg.cc/mDK7Y5MP/Untitled147-20260830011502.png" height="100" alt="Description"> <br>
+<ruby>ok<rt>ok</rt></ruby> <img src="https://i.postimg.cc/C1h2yd6s/Untitled147-20260829194617.png" width="100" height="22" alt="Description"> <br>
+<img src="https://i.postimg.cc/Kjvh502T/Untitled147-20260829194714.png" width="180" height="85" alt="Description">  <img src="https://i.postimg.cc/6qjJbCW0/ezgif-6fc929e1cc0332811.webp" height="85" alt="Description">
 
 
 
