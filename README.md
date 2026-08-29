@@ -22,6 +22,6 @@ All   we   need   is ⠀ somebody ⠀ to   lean   on
 </tr>
 </table>
 
-<img src="https://i.postimg.cc/jjLTpgwx/Untitled147-20260829181949.png" height="90" alt="Description">   <img src="https://i.postimg.cc/s2qzsY7n/Untitled147-20260829210340.png" height="90" alt="Description">   <img src="https://i.postimg.cc/FHwCKDCK/ezgif-627eeb524e55b201.gif" height="90" alt="Description">
+<img src="https://i.postimg.cc/jjLTpgwx/Untitled147-20260829181949.png" height="100" alt="Description">   <img src="https://i.postimg.cc/FHwCKDCK/ezgif-627eeb524e55b201.gif" width="180" height="100" alt="Description">   <img src="https://i.postimg.cc/mDK7Y5MP/Untitled147-20260830011502.png" height="100" alt="Description">
 
 
