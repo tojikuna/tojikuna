@@ -1,6 +1,7 @@
 <div id="text" align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&duration=2000&pause=1000&color=ECAFAC&width=302&height=27&lines=but+still+maybe+i+could+be;a+bright+light+in+this+world)](https://git.io/typing-svg) <br>
+<code>🍥᪶᪻ </code> ⠀ <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&size=18&duration=2000&pause=1000&color=ECAFAC&center=true&vCenter=true&width=201&height=26&lines=but+still+maybe+i+could+be;a+bright+light+in+this+world)](https://git.io/typing-svg)</code> ⠀ <code>⬭ᩙ </code> <br>
+
 ⠀࣭ ࣪⠀͏⣄ <a href="https://musiciann.carrd.co"><img src="https://i.postimg.cc/jdGThmSB/Untitled148-20260829201324.png" height="18" alt="Description"></a> ⠀ೀ ⠀ <a href="https://musician.atabook.org"><img src="https://i.postimg.cc/Vkn8ZgSq/Untitled148-20260829201356.png" height="18" alt="Description"></a> ͏⣠ ⠀࣪  ࣭⠀<br>
 
 <img src="https://i.postimg.cc/jjLTpgwx/Untitled147-20260829181949.png" height="100" alt="Description">   <img src="https://i.postimg.cc/FHwCKDCK/ezgif-627eeb524e55b201.gif" width="180" height="100" alt="Description">   <img src="https://i.postimg.cc/mDK7Y5MP/Untitled147-20260830011502.png" height="100" alt="Description"> <br>
