@@ -34,5 +34,6 @@ ${\color{#ECAFAC}ꘓˆ𓈒ᴗ͈ ᴗ͈ˆ𑇒}$ ⠀⠀<ruby>hime joshi<rt>${\color
 
 <img src="https://i.postimg.cc/Kjvh502T/Untitled147-20260829194714.png" width="180" height="85" alt="Description">  <img src="https://i.postimg.cc/6qjJbCW0/ezgif-6fc929e1cc0332811.webp" height="85" alt="Description">
 
+made by <a href="https://github.com/5uguru">@5uguru</a> hi
 
 
