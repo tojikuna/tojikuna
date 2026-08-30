@@ -1,8 +1,6 @@
 <div id="text" align="center">
 
-Blow  a  kiss,  ⠀ fire  a  gun  ⠀⠀⠀⠀⠀⠀  ♡  ⚟
-
- 𓈒<br>
+Blow  a  kiss,  ⠀ fire  a  gun  ⠀⠀⠀⠀⠀⠀  ♡  ⚟ 𓈒<br>
 All   we   need   is ⠀ somebody ⠀ to   lean   on
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-56b96bd49a14a485.webp" width="270" height="200" alt="Description">
